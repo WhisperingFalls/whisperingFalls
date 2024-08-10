@@ -10,3 +10,7 @@ FT. Chi and vether wow !
 MY FAV <3
 <p align="center">
 <video src=https://github.com/user-attachments/assets/a31f6343-2d58-4069-9666-caed74fd0ded width=100 height=100/>
+<p align="center">
+ALTER TO THESE SAME COPYCAT WHO COPIED ME AND MY FRIEND!!!
+<img width="250" src=https://github.com/user-attachments/assets/08c41a30-53ff-402a-9bcb-f45e1113f125 Alt = ![IMG_20240810_172149]>
+<img width="250" src=https://github.com/user-attachments/assets/6df4a441-a36c-4593-96c0-ed9b4c4f6bb2 Alt = ![IMG_20240810_172127]>
